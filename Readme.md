@@ -1,1 +1,1 @@
-Я лысый>или нет
+I'am balt or no I dont know
